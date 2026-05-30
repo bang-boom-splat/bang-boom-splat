@@ -6,4 +6,7 @@ $\color{#409327}{edd \space fictkin}$ .  $\color{#75AF87}{it / \space its / \spa
 
 ![](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/42b735165dca3864-1b/s540x810/5fb362aca668e2ccd736f8794d97773e7ac7e796.gifv)
 
-![](https://komarev.com/ghpvc/?username=BANG-BOOM-SPLAT&color=brightgreen&label=the+tormented)
+![](https://komarev.com/ghpvc/?username=BANG-BOOM-SPLAT&color=brightgreen&label=the+tormented) 
+
+
+<sub>wip currently maybe</sub>
