@@ -9,4 +9,4 @@ $\color{#409327}{edd \space fictkin}$ .  $\color{#75AF87}{it / \space its / \spa
 ![](https://komarev.com/ghpvc/?username=BANG-BOOM-SPLAT&color=brightgreen&label=the+tormented) 
 
 
-<sub>wip currently maybe</sub>
+<sub>wip currently maybe. best with mobile and dark mode</sub>
