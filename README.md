@@ -4,7 +4,7 @@
 
 $$\color{green}\textsf{edd, it/its/any, aroace n aplatonic-spec?}$$
 
-ㅤㅤ⋆ㅤㅤㅤㅤㅤㅤstraw here
+ㅤㅤ⋆ㅤ[strawpag!!! sned me gimmick!!!!!](https://eddeddsworldgimmick.straw.page)
 
 ![](https://64.media.tumblr.com/80c8230bd2ebaec88b75a72eeec57e31/91460025e43f0408-3f/s2048x3072/44e72de1e680f117c3eaf567e1f9c87225d64625.gifv)
 
@@ -25,8 +25,8 @@ $$\color{green}\textsf{edd, it/its/any, aroace n aplatonic-spec?}$$
 <div align="center">
   <details>
     <summary>༚ pt info</summary>
-    <br> $$\color{#61924A}\textsf{interaction, whispers, c+h, and touch are}$$
-$$\color{#61924A}\textsf{okay smiley face}$$
+    <br> $$\color{#61924A}\textsf{interaction, whispers, c+h, and}$$
+$$\color{#61924A}\textsf{boops are okay smiley face}$$
 $$\color{#61924A}\textsf{i usually hang out in ew area or bakery}$$
   </details>
 </div>
