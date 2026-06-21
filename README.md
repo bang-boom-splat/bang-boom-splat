@@ -29,6 +29,9 @@ $$\color{#61924A}\textsf{i usually hang out in ew area or bakery}$$
   <details>
     <summary>dni</summary>
     <br>
-    basic criteria. radqueers and anti-good faith labels dni
+    $$\color{#CFA561}\textsf{basic criteria. radqueers and anti-good faith}$$
+    $$\color{#CFA561}\textsf{labels dni. mockery of xenogenders or}$$
+$$\color{#CFA561}\textsf{neopronouns. -13 dni. i hide/block}$$
+    $$\color{#CFA561}\textsf{freely otherwise!}$$
   </details>
 </div>
