@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/o0auei.png)
+![](https://files.catbox.moe/lggifc.png)
 
 ![](https://komarev.com/ghpvc/?username=BANG-BOOM-SPLAT&color=brightgreen&label=hi) ${{\color{Green}\Huge{\textsf{  edd eddsworld\}}}}\$
 
