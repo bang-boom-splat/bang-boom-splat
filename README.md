@@ -12,6 +12,8 @@ $$\color{green}\textsf{edd, it/its/any, aroace n aplatonic-spec?}$$
     $$\color{#61924A}\textsf{casualties unknown, deltarune,}$$
     $$\color{#61924A}\textsf{homestuck (trying to complete),}$$
   $$\color{#5DA13E}\textsf{writing}$$
+  
+   $$\color{#86B063}\textsf{im okay with ship talk!}$$
     
   </details>
 </div>
@@ -29,9 +31,9 @@ $$\color{#61924A}\textsf{i usually hang out in ew area or bakery}$$
   <details>
     <summary>dni</summary>
     <br>
-    $$\color{#CFA561}\textsf{basic criteria. radqueers and anti-good faith}$$
-    $$\color{#CFA561}\textsf{labels dni. mockery of xenogenders or}$$
-$$\color{#CFA561}\textsf{neopronouns. -13 dni. i hide/block}$$
+    $$\color{#CFA561}\textsf{basic criteria. radqueers dni. -13}$$
+    $$\color{#CFA561}\textsf{dni.}$$
+$$\color{#CFA561}\textsf{ i hide/block}$$
     $$\color{#CFA561}\textsf{freely otherwise!}$$
   </details>
 </div>
