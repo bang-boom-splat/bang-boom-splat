@@ -4,6 +4,8 @@
 
 $$\color{green}\textsf{edd, it/its/any, aroace n aplatonic-spec?}$$
 
+![](https://64.media.tumblr.com/80c8230bd2ebaec88b75a72eeec57e31/91460025e43f0408-3f/s2048x3072/44e72de1e680f117c3eaf567e1f9c87225d64625.gifv)
+
 <div align="center">
   <details>
     <summary>current interests</summary>
@@ -51,7 +53,8 @@ $$\color{#CFA561}\textsf{ i hide/block}$$
 
 ![](https://64.media.tumblr.com/f20a59162dd4316ee365ceddd2520224/d7fc98efa4212d4a-1e/s1280x1920/9c527a8feb5fb977365a259bfda72545997186d7.pnj) ![](https://64.media.tumblr.com/223f266a99c65d5d2b27591037086a8d/c34fc5aebbfcff6f-32/s1280x1920/1d6a90cae077d18dc3399b28f7dbf3815d0c54b2.pnj)
 
-![](https://64.media.tumblr.com/ff52e60e41b7e00107629e98d2eb8ced/c63078d91fc62308-31/s100x200/c2da69650ef13044da3ccce04fd9887fcb7dfb16.gifv)
-
   </details>
 </div>
+
+![](https://64.media.tumblr.com/80c8230bd2ebaec88b75a72eeec57e31/91460025e43f0408-3f/s2048x3072/44e72de1e680f117c3eaf567e1f9c87225d64625.gifv)
+ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/ff52e60e41b7e00107629e98d2eb8ced/c63078d91fc62308-31/s100x200/c2da69650ef13044da3ccce04fd9887fcb7dfb16.gifv)
