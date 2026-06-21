@@ -4,11 +4,13 @@
 
 $$\color{green}\textsf{edd, it/its/any, aroace n aplatonic-spec?}$$
 
+ㅤㅤ⋆ㅤㅤㅤㅤㅤㅤstraw here
+
 ![](https://64.media.tumblr.com/80c8230bd2ebaec88b75a72eeec57e31/91460025e43f0408-3f/s2048x3072/44e72de1e680f117c3eaf567e1f9c87225d64625.gifv)
 
 <div align="center">
   <details>
-    <summary>current interests</summary>
+    <summary>༚ current interests</summary>
     <br>
     $$\color{#61924A}\textsf{eddsworld (special interest), rain world,}$$
     $$\color{#61924A}\textsf{casualties unknown, deltarune,}$$
@@ -22,7 +24,7 @@ $$\color{green}\textsf{edd, it/its/any, aroace n aplatonic-spec?}$$
 
 <div align="center">
   <details>
-    <summary>pt info</summary>
+    <summary>༚ pt info</summary>
     <br> $$\color{#61924A}\textsf{interaction, whispers, c+h, and touch are}$$
 $$\color{#61924A}\textsf{okay smiley face}$$
 $$\color{#61924A}\textsf{i usually hang out in ew area or bakery}$$
@@ -31,7 +33,7 @@ $$\color{#61924A}\textsf{i usually hang out in ew area or bakery}$$
 
 <div align="center">
   <details>
-    <summary>dni</summary>
+    <summary>༚ dni</summary>
     <br>
     $$\color{#CFA561}\textsf{basic criteria. radqueers dni. -13}$$
     $$\color{#CFA561}\textsf{dni.}$$
@@ -42,7 +44,7 @@ $$\color{#CFA561}\textsf{ i hide/block}$$
 
 <div align="center">
   <details>
-    <summary>gimmick :)</summary>
+    <summary>⋆ gimmick :)</summary>
     <br>
 
 ![](https://64.media.tumblr.com/4761127ba42d733a206fdb2f920e0c33/00c46139bda447b3-23/s75x75_c1/da34517f91f0c5b807773d73766a0bec3f60a840.gifv) ![](https://64.media.tumblr.com/b5034b6ed3631751fdcf7b6d2afd4c54/3432e847ec819b1c-74/s75x75_c1/87a81b995ef356730957e4c22877d9c5a215b303.gifv) ![](https://64.media.tumblr.com/a27ea14fea29ab58256d292136cdb62f/3432e847ec819b1c-0c/s75x75_c1/391e54f94df3fb2be45a45860bdd478a2da10724.gifv) ![](https://64.media.tumblr.com/cccc947060d71cd699b8a4de3a589bf5/27f3abc018b42919-48/s100x200/6840fe9244fe01fb242d9375e55d662b8a925990.gifv)
