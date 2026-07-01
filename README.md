@@ -13,8 +13,8 @@ $$\color{green}\textsf{edd, it/its/any, aroace n aplatonic-spec?}$$
     <summary>༚ current interests</summary>
     <br>
     $$\color{#61924A}\textsf{eddsworld (special interest), rain world,}$$
-    $$\color{#61924A}\textsf{casualties unknown, deltarune,}$$ $$\color{#61924A}\textsf{red dwarf,}$$
-    $$\color{#61924A}\textsf{homestuck (trying to complete),}$$
+    $$\color{#61924A}\textsf{deltarune, homestuck}$$
+    $$\color{#61924A}\textsf{ (haven't completed yet),}$$
   $$\color{#5DA13E}\textsf{writing}$$
   
    $$\color{#86B063}\textsf{im okay with ship talk!}$$
