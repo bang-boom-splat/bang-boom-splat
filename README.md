@@ -1,4 +1,5 @@
-Hhi :)
+hhi :)
 might use we/us sometimes
 
-any prns / it/its mainly . im also good with worm/worms or cola/colas :) not forced to use however ❤️
+any prns / it/its mainly .
+she/him , shi/hir , worm/worms , etc. are also fine! just ask if youre interested :)
